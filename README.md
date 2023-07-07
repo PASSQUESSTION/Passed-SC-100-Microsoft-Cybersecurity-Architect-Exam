@@ -1,0 +1,1 @@
+# Passed-SC-100-Microsoft-Cybersecurity-Architect-Exam
